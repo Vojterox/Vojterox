@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Vojterox
+- 👀 I’m interested in ... Boobs
+- 🌱 I’m currently learning ... Gdscript
+- 💞️ I’m looking to collaborate on ... ph.com
+- 📫 How to reach me ... call me on discord yes yes
